@@ -1,8 +1,8 @@
-# 待賢門院堀河集（群書類従本）（たいけんもんいんのほりかわしゅう）
+# 待賢門院堀河集（群書類従 底本）（たいけんもんいんのほりかわしゅう）
 
 雲居の文庫（くもゐのふみぐら）の一作品です。著作権の保護期間が満了した刊本から起こした本文を、誰でも読み・使い・直せるように置いています。
 
-**サイトで読む：[待賢門院堀河集（群書類従本）（雲居の文庫（くもゐのふみぐら））](https://informanellica.com/kumoi-no-fumigura/read.html?work=gunsho10-taikenmonin-horikawa)**（原本の画像の表示、修正案の送信ができます）
+**サイトで読む：[待賢門院堀河集（群書類従 底本）（雲居の文庫（くもゐのふみぐら））](https://informanellica.com/kumoi-no-fumigura/read.html?work=gunsho10-taikenmonin-horikawa)**（原本の画像の表示、修正案の送信ができます）
 
 | | |
 |---|---|
